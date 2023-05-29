@@ -1,4 +1,4 @@
-# Asuka Plugsui (from Neon Genesis Evangelion)
+# Asuka Plugsuit (from Neon Genesis Evangelion)
 
 This costume was design and made for [Anime North](https://www.animenorth.com/) 2023
 
